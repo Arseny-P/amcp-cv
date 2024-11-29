@@ -1,5 +1,5 @@
 # Павлов Арсений
-![Я сам](https://drive.google.com/file/d/1yevgDhzOHqxndQDizXosyG2knIEZVaUQ/view?usp=drive_link)
+![Я сам](photo_2024-11-29_21-27-37.jpg)
 ### Контакты для связи
 Тел.: 8 953 361-31-77
 E-mail: <arseniy_pavlov_06@mail.ru>
